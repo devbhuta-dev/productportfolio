@@ -1,4 +1,4 @@
-Devang Bhuta devbhuta@gmail.com | (647) 206-2594 | Toronto | Portfolio | Linkedin
+Devang Bhuta devbhuta@gmail.com | (647) 206-2594 | Toronto |
 Technology Product Leader | SaaS, Platform Strategy
 
 🎯 PROFESSIONAL SUMMARY:
